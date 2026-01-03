@@ -29,8 +29,8 @@ Currently, I'm focused on **improving my skills** and building projects to enhan
 
 
 ## 📫 How to Reach Me
-- **LinkedIn:** [Your LinkedIn Profile](https://www.linkedin.com/in/yourname/)  
-- **Email:** your.email@example.com  
+- **LinkedIn:**www.linkedin.com/in/vemulanandini
+
 
 
 ## 🎯 Fun Facts
